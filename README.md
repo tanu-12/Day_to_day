@@ -29,3 +29,6 @@ I woke up at 7:45 am today .
 
 all these work were riddled with anxiety . I constantly felt guilty that i have not done enough 
 
+Sept 7 2024
+
+I made my brother cry today . I am really mean .
