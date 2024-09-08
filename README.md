@@ -32,3 +32,8 @@ all these work were riddled with anxiety . I constantly felt guilty that i have 
 Sept 7 2024
 
 I made my brother cry today . I am really mean .
+
+Sept 8 2024
+
+I am so tired . Why do u think even after not talking straight you have the audacity to leave your newborn on us . People who u don't like???????????
+The weekend they went out more than 3 times. Do you we were the ones who gave birth
