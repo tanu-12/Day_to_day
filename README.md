@@ -36,4 +36,9 @@ I made my brother cry today . I am really mean .
 Sept 8 2024
 
 I am so tired . Why do u think even after not talking straight you have the audacity to leave your newborn on us . People who u don't like???????????
-The weekend they went out more than 3 times. Do you we were the ones who gave birth
+The weekend they went out more than 3 times. Do you we were the ones who gave birth?
+
+Sept 18 th 2024
+
+I am so tired my whole back hurts a lot. I thought of keeping this repos as something to write daily 
+but I am always so tired so tired . I feel nothing about anything . Buying clothes, movies . I used to love watching movies I have stopped completely.
