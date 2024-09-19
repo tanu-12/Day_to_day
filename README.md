@@ -42,3 +42,9 @@ Sept 18 th 2024
 
 I am so tired my whole back hurts a lot. I thought of keeping this repos as something to write daily 
 but I am always so tired so tired . I feel nothing about anything . Buying clothes, movies . I used to love watching movies I have stopped completely.
+
+sept 19th 2024
+its only 11:30 am i am dead tired . 
+the long paragraph all the bullshit is only there because
+i texted first I took the action if i hadn't he would not be even bothered 
+
