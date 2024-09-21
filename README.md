@@ -48,3 +48,8 @@ its only 11:30 am i am dead tired .
 the long paragraph all the bullshit is only there because
 i texted first I took the action if i hadn't he would not be even bothered 
 
+sept 21st 2024
+today is a weekend I waited for someone to give me tea .
+i didn't get it. is it too bad to expect i made every morning tea from sunday to saturday 
+There are 3 other people who are capable of making tea but didn't 
+i feel very tired and upset 
