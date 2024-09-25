@@ -42,3 +42,11 @@ Sept 18 th 2024
 
 I am so tired my whole back hurts a lot. I thought of keeping this repos as something to write daily 
 but I am always so tired so tired . I feel nothing about anything . Buying clothes, movies . I used to love watching movies I have stopped completely.
+
+
+Sept 25th 2024
+
+I have decided if i don't get a job I will be going for MCA Exam . i want to get in top NIT . OR something at least in delhi 
+I keep on listening to my brother and don't do something that i actually like
+I want to go in a university enjoy a bit of college life work on myself 
+w
