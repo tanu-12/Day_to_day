@@ -43,6 +43,7 @@ Sept 18 th 2024
 I am so tired my whole back hurts a lot. I thought of keeping this repos as something to write daily 
 but I am always so tired so tired . I feel nothing about anything . Buying clothes, movies . I used to love watching movies I have stopped completely.
 
+<<<<<<< HEAD
 
 Sept 25th 2024
 
@@ -50,3 +51,15 @@ I have decided if i don't get a job I will be going for MCA Exam . i want to get
 I keep on listening to my brother and don't do something that i actually like
 I want to go in a university enjoy a bit of college life work on myself 
 w
+=======
+sept 19th 2024
+its only 11:30 am i am dead tired . 
+the long paragraph all the bullshit is only there because
+i texted first I took the action if i hadn't he would not be even bothered 
+
+sept 21st 2024
+today is a weekend I waited for someone to give me tea .
+i didn't get it. is it too bad to expect i made every morning tea from sunday to saturday 
+There are 3 other people who are capable of making tea but didn't 
+i feel very tired and upset 
+>>>>>>> refs/remotes/origin/main
