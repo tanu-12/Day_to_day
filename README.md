@@ -63,3 +63,6 @@ i didn't get it. is it too bad to expect i made every morning tea from sunday to
 There are 3 other people who are capable of making tea but didn't 
 i feel very tired and upset 
 >>>>>>> refs/remotes/origin/main
+>>>>
+Sept 30th
+Today is a very bad day
